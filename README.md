@@ -9,3 +9,5 @@
 # I am reading.
 # I am frustrated with GitHub's Twitter integration.
 # I've got piñon coffee!
+# I'm a bit heat sick.
+# I got to skate a bit, only hurt myself a little.
